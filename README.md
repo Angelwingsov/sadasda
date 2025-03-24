@@ -1,2 +1,2 @@
-# Asphyxia
-Тут типо йоу бд наша
+# Asphyxia Master
+# developer, Angelwinsov Amnezia FreakCartel Waveous
